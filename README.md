@@ -26,7 +26,7 @@ It's just a profile of a n00b.
 > 嘲讽并踩爆这个蒟蒻
 
 > [!IMPORTANT]
-> 批话该罚
+> P话该罚
 
 > [!WARNING]
 > 此人钛蒻了，请勿靠近
